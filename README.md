@@ -3,6 +3,7 @@
 - 👨‍💻 I work as a software engineer
 - 🏃 I’m currently working on something cool
 - 💬 Ask me about anything, I'm happy to help
+- 🥑 Yeah I know, not much going on here, sorry all private. But enjoy my test crap :)
 
 ## 📈 GitHub Stats
 
